@@ -1,2 +1,0 @@
-# NOVANECTAR_DA
-
